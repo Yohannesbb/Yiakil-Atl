@@ -1,7 +1,7 @@
 #This is the WhatsApp conversation of the Atlanta Eritrean Yiakil Movement
 
-today is the new start
-ood morning friends, as I was emphasizing at the last meeting, we should be able to identify and nominate people that can help us lead to the next phase of our movement. People that can unite us and be the leader of all despite of any differences. No intentions to wait for last minute, believe me that is not the right practice anyway. Here are some list of prospective candidates so far, by no means is this a representation nor is the final list. Keep bringing them down.
+today is the new start.
+Good morning friends, as I was emphasizing at the last meeting, we should be able to identify and nominate people that can help us lead to the next phase of our movement. People that can unite us and be the leader of all despite of any differences. No intentions to wait for last minute, believe me that is not the right practice anyway. Here are some list of prospective candidates so far, by no means is this a representation nor is the final list. Keep bringing them down.
 
    1. Weini Asier ( available )
    2. Freweini Zerai ( available )

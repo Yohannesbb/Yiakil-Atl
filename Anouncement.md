@@ -1,3 +1,4 @@
+```
 Good morning all, we are moving along pretty much to the last weekend of our conference.
 
 Lineup for Saturday 4 pm- 
@@ -8,3 +9,4 @@ Lineup for Saturday 4 pm-
 - report from ፈጻሚት አካል
 - report from Auditing committee if    available 
  Thanks
+```
